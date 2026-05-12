@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Premiere Pro for macOS with Adobe Premiere Pro for macOS premium Preset: version-history & echo-removal, the #1 preset. Includes version-history and echo-removal for
 
 
 
